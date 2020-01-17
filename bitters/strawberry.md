@@ -19,6 +19,8 @@ Useful in
 Straight from Handcrafted Bitters. Basically completely tasted like Gentian Root. Not sure
 if that's due to the tinctures or the recipe. Trashed
 
+---
+
 ##### 2020-01-15 (001)
 
 * 2.5 oz Strawberry (STB002)

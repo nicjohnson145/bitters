@@ -11,6 +11,8 @@
 
 Not a very strong flavor, good smell though
 
+---
+
 ##### 2020-01-13 (STB002)
 
 * 8.29 oz (lb) diced strawberries
